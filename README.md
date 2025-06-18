@@ -1,1 +1,4 @@
-# examens
+# EXAMENS
+asdfghjkl;zxcvbnm,.
+sdfghjklzsxdcfghjklsdfghj
+sdcfvghjklxcvbndfghj
